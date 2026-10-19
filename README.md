@@ -76,7 +76,7 @@ Check my repositories to follow my progress!
 
 I'm open to connecting with IT professionals, cybersecurity enthusiasts, and fellow students to share knowledge and learn together.
 
-📫 **LinkedIn:** [Connect with me](https://www.linkedin.com/)
+📫 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/ben-amor-mohamed-rayen-104227445/)
 
 ---
 
